@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ItzBreezy
+- 👀 I’m interested in gaming, programming, almost everything tech related, playing piano, cycling and sup(Stand up paddle)
+- 🌱 I’m currently learning Python
+- 📫 How to reach me Breezy#4281(Discord)
